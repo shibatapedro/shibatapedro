@@ -1,4 +1,6 @@
-## Seja bem-vindo ao meu perfil 💙💙 ![](link)
+![image](https://github.com/shibatapedro/shibatapedro/assets/171843935/8936c07d-0799-4bf8-b1f7-226487740982)
+
+## Seja bem-vindo ao meu perfil 💙💙
 
 me chamo Pedro Henrique, mas pode me chamar de "shibata"
 
@@ -13,3 +15,6 @@ me chamo Pedro Henrique, mas pode me chamar de "shibata"
 00001086350194sp@al.educacao.sp.gov.br
 ## Instagram
 @shibata.pedro
+
+
+
